@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Fantastical for macOS tool with Fantastical for macOS instant Tool - reminders and multi-device sync. Featuring reminders and multi-device sync, it's the best
 
 
 
